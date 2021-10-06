@@ -1,2 +1,6 @@
-# Mythical_Glory
-Crack FB Untuk Orang² Kelas Elite ke atas
+<h1 align="center">
+  Mythical_Glory
+</h1>
+
+### Ingfo SC ###
+• Cooming soon
